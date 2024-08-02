@@ -1,4 +1,8 @@
 # NEB Clas 12 Result 2081 - How to Check Grade 12 Results with Marksheet.
+
+
+### [Click here to Check Your Result Now](https://bit.ly/nebclass12result)
+
 Aug 2: The National Examination Board (NEB) is all set to announce Class 12 results on Friday.
 
 According to the Board, a meeting was held at 10 AM today to publish the results. The results will be published once the Board collectively decides to publish them today and if there are no technical difficulties.
